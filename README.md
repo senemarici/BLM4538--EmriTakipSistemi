@@ -10,3 +10,6 @@ https://drive.google.com/file/d/1u0OwkmqCGDsGrlRKueBuBM4da1QV1LSO/view?usp=shari
 
 22290619-SenemArıcı-IOS2 Dersi- 27042026 - V4
 https://drive.google.com/drive/folders/1FYLZr70kxE_-SDanrBAkz_uNMPWhYgpn?usp=sharing
+
+22290619-SenemArıcı-IOS2 Dersi- 12052026 - V5
+https://drive.google.com/drive/folders/1eDVIzHivv6Xxq3ElrvUpuOkqeLfxVnMn?usp=sharing
