@@ -19,3 +19,6 @@ https://drive.google.com/drive/folders/1FSSp88iZCddESeyW8LQtcw2Oxbu0V7kw?usp=sha
 
 222906109-SenemArıcı-IOS2 Dersi-100626-V7
 https://drive.google.com/drive/folders/1PqDWH0uonOQlepGoZaR-uiJb1_ue71BN?usp=sharing
+
+222906109-SenemArıcı-IOS2 Dersi-10062026-V8
+https://drive.google.com/drive/folders/1-0Bgke9PCT05S1QsVYh5RZ2wNJzchfZ5?usp=sharing
